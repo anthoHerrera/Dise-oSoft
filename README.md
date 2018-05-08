@@ -1,2 +1,2 @@
 # Dise-oSoft
-Esto es un ejercicio
+Anthony Kevin Herrera Cruz
